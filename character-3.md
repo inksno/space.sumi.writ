@@ -20,3 +20,6 @@
 
 <blockquote class="twitter-tweet"><p lang="zxx" dir="ltr">https://t.co/wTl6z0dDPO</p>&mdash; sumi′ (@su20715) <a href="https://x.com/su20715/status/2113556031066587644?ref_src=twsrc%5Etfw">October 23, 2026</a></blockquote>
 <script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="zxx" dir="ltr">https://t.co/YzmPRb0zzH</p>&mdash; 墨雪 (@muesye) <a href="https://x.com/muesye/status/2119386573334888844?ref_src=twsrc%5Etfw">November 8, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
