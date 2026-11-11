@@ -1,0 +1,108 @@
+# 反動主義者
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">泥酔は合意ではないとかはまぁわかるんだけど、「だから明確に合意がない場合は絶対ダメ！！」ってなるのどうなんだ
+現実問題として世の中には明確に合意する女子ばかりではなくて、多くの人はなんとなく、合意があるんだか無いんだか曖昧なままセックスに至ってる気がする。</p>&mdash; イヌ息子 (@inu_musuko) <a href="https://x.com/inu_musuko/status/1107456316216270851?ref_src=twsrc%5Etfw">March 18, 2019</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">BLゲームをプレイしてて、せっかくBLゲーム（＝男ばっか）なのに主人公がなんだかんだ病弱だったり弱かったりしてピンチになったり助けてもらったりする描写が多くてフラストレーションがたまるので、今作ってるゲームの主人公は握力70ずつあるしグーで攻めの前歯折る</p>&mdash; zen🐊 (@FeelzenVr) <a href="https://x.com/FeelzenVr/status/1214187798355251200?ref_src=twsrc%5Etfw">January 6, 2020</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">はァ？春節だがなんだか知らんけど流石に新型コロナ引き連れて来日はマジ勘弁してくれよな</p>&mdash; 或🔞 (@arurun1231) <a href="https://x.com/arurun1231/status/1219745490452930560?ref_src=twsrc%5Etfw">January 21, 2020</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">人権だのポリコレだのを声高に叫ぶ同じ口で安倍さんにはバッシングと言うか度を超えた、仮に私が言われたら1000回は死ぬ位酷い中傷をこれが正義だと言わんばかりに平気で口にし続ける野党支持者と文化人には辟易していたよ
+これからのことは不安だけど今までお疲れ様でした。ゆっくり休んで下さい</p>&mdash; きなこ72 (@Megido72000) <a href="https://x.com/Megido72000/status/1299222116718358528?ref_src=twsrc%5Etfw">August 28, 2020</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">何故か現地の開票結果じゃなくて予想とか国内の〇〇に聞いた支持とかメディア調査を出してバイデン氏の勝利予想を全面に出してるのはそういうこと？</p>&mdash; あさの ⚾ (@asano_moi) <a href="https://x.com/asano_moi/status/1323869327779524608?ref_src=twsrc%5Etfw">November 3, 2020</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">トランプさんが勝つとますますアメリカファーストが強固となるとはいえ、バイデンさんは中共寄りとの話もあるし、対外的にはバイデンさんの政策は良さそうなものの怪しさしかない。ちょっと幼稚とも思えるトランプさんの方がまだやりやすそうではある…かな？</p>&mdash; 垂れ流Ｃっ子 🔞 (@trngs_bot2) <a href="https://x.com/trngs_bot2/status/1323830060130824192?ref_src=twsrc%5Etfw">November 3, 2020</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="zxx" dir="ltr">https://t.co/z57a0Gog9n</p>&mdash; 鬼頭ポリス🔞 (@nikuda2929) <a href="https://x.com/nikuda2929/status/1374032389832286213?ref_src=twsrc%5Etfw">March 22, 2021</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet">
+  <p lang="ja" dir="ltr">
+    この機に同人誌文化とかいうやつ滅びねえかな
+  </p>
+  &mdash; 東京 (@roomspa08)
+  <a
+    href="https://x.com/roomspa08/status/1385927818081542147?ref_src=twsrc%5Etfw"
+    >April 24, 2021</a
+  >
+</blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">橋本さん頑張れ！✊</p>&mdash; 田中TAN🐾 (@18TANTANAKA) <a href="https://x.com/18TANTANAKA/status/1418571557954211847?ref_src=twsrc%5Etfw">July 23, 2021</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">少なくとも更衣を伴う場所はからだの性別とこころの性別は区別すべき
+べき論は嫌いだけど、これは区別すべき
+当事者ではない人が当事者のフリをして犯罪するよ
+それで被害にあうのはマジョリティ、責められるのはマイノリティ
+喜ぶのは犯罪者と利権団体
+性善説もほどほどにしないと、、</p>&mdash; 小木ハム＠2番セカンド (@ogi_hamu) <a href="https://x.com/ogi_hamu/status/1658202517615054848?ref_src=twsrc%5Etfw">May 15, 2023</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">暇空さん都知事選でるのか、、
+都民じゃないけど漫画描かせて頂いている身としては応援したいな</p>&mdash; 小木ハム＠2番セカンド (@ogi_hamu) <a href="https://x.com/ogi_hamu/status/1803750262756262261?ref_src=twsrc%5Etfw">June 20, 2024</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アメブロを投稿しました。
+『興味がない、わからない、知らない』
+#アメブロ  #選挙
+ https://t.co/ILrtbM0KAH</p>&mdash; 林原めぐみ 公式 (@MHayashibara_PR) <a href="https://x.com/MHayashibara_PR/status/1931660109132038387?ref_src=twsrc%5Etfw">June 8, 2025</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">デュオリンゴの日本語話者向けコースは絶対AI任せで人間がテストしてないと私の中で評価が確定してます。無料でデバッグに協力する筋合いもないよなあと思って私は基本英語ベースです。</p>&mdash; 大山祐亮 (@Yusuke_OYAMA_) <a href="https://x.com/Yusuke_OYAMA_/status/1949348090290290737?ref_src=twsrc%5Etfw">July 27, 2025</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">『ぼっち・ざ・ろっく!』のアニメ脚本家の方が原作表現を一部「ノイズとして排除した」とのコメント。原作者はどう感じるでしょうか。性的消費・性的搾取のワードの使い方も個人的にはかなり違和感があります。 https://t.co/nnFLICOcJw</p>&mdash; くりした善行 (Zenko)🇯🇵無所属/Anti-Censorship/C108 日曜西あ51a (@zkurishi) <a href="https://x.com/zkurishi/status/1967558527347790132?ref_src=twsrc%5Etfw">September 15, 2025</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">&amp;gt; 決意を述べたまでで、国民の皆さまに対して、過労を要求するつもりではないことくらいわかるでしょうが
+
+好きです（笑）
+
+政治の中身には立ち入りません。
+単に、意味不明な切り取りに対する毅然とした態度は、とても好感です。</p>&mdash; バーチャルデータサイエンティスト アイシア=ソリッド (@AIcia_Solid) <a href="https://x.com/AIcia_Solid/status/1974777795894215033?ref_src=twsrc%5Etfw">October 5, 2025</a></blockquote>
+
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">総理大臣になるって大変ですね〜。
+
+めでたい場で、決意を述べたら、さっそく揚げ足を取られる。
+
+ほんとに大変ですね。</p>&mdash; バーチャルデータサイエンティスト アイシア=ソリッド (@AIcia_Solid) <a href="https://x.com/AIcia_Solid/status/1974778420241592675?ref_src=twsrc%5Etfw">October 5, 2025</a></blockquote>
+
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">皆さんおっしゃっているけれど、総裁選の結果が出た時の高市早苗の面構えは本当に大したものだと思うし、進次郎のホッとした表情も印象的だった。全部顔に出るものなんだなぁ。</p>&mdash; どざむら (@dozamura_) <a href="https://x.com/dozamura_/status/1975108990951645577?ref_src=twsrc%5Etfw">October 6, 2025</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">高市さん本当に早速仕事し過ぎてて自分の人生を振り返るレベル。働いて働いて働かねば…毎イベント新刊出しましょう…。</p>&mdash; かわしろみ@ぼいパレA-8 (@kawatoshiromi) <a href="https://x.com/kawatoshiromi/status/1975834557225332840?ref_src=twsrc%5Etfw">October 8, 2025</a>
+</blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">今回の総裁選の主役って、もしかすると実は、小野田紀美キャプテンと門寛子キャプテンだったのかも。。</p>&mdash; 荻野幸太郎/OGINO,Kotaro (@ogi_fuji_npo) <a href="https://x.com/ogi_fuji_npo/status/1975868476771238070?ref_src=twsrc%5Etfw">October 8, 2025</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">小野田さんの会見の受け答え、とても安定していて模範的だなと感じる。ご本人の真面目な人柄が、閣僚という仕事・役割を務める上で、とても良い方向に作用している。行政官として語る場では、一政治家の立場ときちんと区分する態度は、今後の他の政治家のロールモデルにもなっていくかもしれない。</p>&mdash; 荻野幸太郎/OGINO,Kotaro (@ogi_fuji_npo) <a href="https://x.com/ogi_fuji_npo/status/2001920611128631804?ref_src=twsrc%5Etfw">December 19, 2025</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ホントはこれ国連の仕事やろ？？？？？ってことをやってるのが今のアメリカなんだからなんも否定する気にならんし、「いざというときアメリカが助けてくれる」とかいうウンチみたいな不義理めっちゃ嫌いだから防衛費増額大賛成派だよ</p>&mdash; ﾁｯﾁﾁ🔞腐成人向 (@rollermets)<a href="https://x.com/rollermets/status/2008847939503063476?ref_src=twsrc%5Etfw">January 7, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">福井新知事の人あのビジュで35なの良すぎるな...........</p>&mdash; ものぶ (@okekemosamosa) <a href="https://x.com/okekemosamosa/status/2016054997021274565?ref_src=twsrc%5Etfw">January 27, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">いるいる。困ったことある。</p>&mdash; どざむら (@dozamura_) <a href="https://x.com/dozamura_/status/2026297849768763529?ref_src=twsrc%5Etfw">February 24, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">他の記事も読んだんだけど、巧みな文章で一貫した主張をしており、良い(また個人的にはテーマに対する感覚がとても近い)
+法案のデメリットだけ集めた二次創作を公式扱いはやめて欲しい話｜源  https://t.co/b1lerlZgzV</p>&mdash; ゆや(bain) (@yuyabath) <a href="https://x.com/yuyabath/status/2069711778926538808?ref_src=twsrc%5Etfw">June 24, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">石破達は是非離党して共産党とか中道とかに合流するか新党立ち上げて欲しい、記録的支持率叩き出して笑わせて欲しい</p>&mdash; 中田春平 (@robonakata) <a href="https://x.com/robonakata/status/2084461890840007079?ref_src=twsrc%5Etfw">August 4, 2026</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
