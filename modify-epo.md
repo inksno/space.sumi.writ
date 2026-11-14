@@ -1,4 +1,4 @@
-# modify esperanto
+# [language/epo] modify
 
 ## phonology
 

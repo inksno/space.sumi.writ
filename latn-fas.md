@@ -1,4 +1,4 @@
-# latinise persian
+# [language/fas] latinise
 
 | arab | latn    |
 | ---- | ------- |

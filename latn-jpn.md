@@ -1,6 +1,6 @@
-# latinise japanese
+# [language/jpn] latinise
 
-## vowels
+## vowel
 
 - i
 - e
@@ -8,12 +8,12 @@
 - o
 - u
 
-## glides
+## glide
 
 - j
 - w
 
-## consonants
+## consonant
 
 |                    | velar | palatal | dental | labial |
 | -----------------: | ----- | ------- | ------ | ------ |
@@ -24,7 +24,7 @@
 
 - we use `g` for [c] which originateth from chinese [ŋ]
 
-## examples
+## example
 
 | jpn  | latn    |
 | ---- | ------- |

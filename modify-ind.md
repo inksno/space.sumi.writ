@@ -1,4 +1,4 @@
-# modify indonesian orthography
+# [language/ind] modify orthography
 
 | old   | new    |
 | ----- | ------ |

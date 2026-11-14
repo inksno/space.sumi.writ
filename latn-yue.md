@@ -1,4 +1,4 @@
-# latinise cantonese
+# [language/yue] latinise
 
 ## initial
 

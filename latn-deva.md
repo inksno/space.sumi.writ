@@ -1,4 +1,4 @@
-# latinise devanagari
+# [language/san] latinise
 
 | deva | latn |
 | ---- | ---- |

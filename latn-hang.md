@@ -1,4 +1,4 @@
-# latinise hangul
+# [language/kor] latinise
 
 | old | new |
 | --- | --- |

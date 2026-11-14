@@ -1,4 +1,4 @@
-# latinise mandarin
+# [language/cmn] latinise
 
 ## consonant
 

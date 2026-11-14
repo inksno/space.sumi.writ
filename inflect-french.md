@@ -1,4 +1,4 @@
-# inflect french
+# [language/fra] inflect
 
 | aim-er      | je    | tu     | il   | nous     | vous    | ils    |
 | ----------- | ----- | ------ | ---- | -------- | ------- | ------ |

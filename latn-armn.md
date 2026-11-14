@@ -1,4 +1,4 @@
-# latinise armenian
+# [language/arm] latinise
 
 | armn | latn |
 | ---- | ---- |

@@ -1,4 +1,4 @@
-# 反動主義者
+# [fact] 反動主義者
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">泥酔は合意ではないとかはまぁわかるんだけど、「だから明確に合意がない場合は絶対ダメ！！」ってなるのどうなんだ
 現実問題として世の中には明確に合意する女子ばかりではなくて、多くの人はなんとなく、合意があるんだか無いんだか曖昧なままセックスに至ってる気がする。</p>&mdash; イヌ息子 (@inu_musuko) <a href="https://x.com/inu_musuko/status/1107456316216270851?ref_src=twsrc%5Etfw">March 18, 2019</a></blockquote>
